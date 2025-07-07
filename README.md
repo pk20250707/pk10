@@ -13,6 +13,6 @@
 立即访问，享受高清、无广告、免注册的优质观看体验，尽情享受最新日本AV资源。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pk20250707/pk10 ）</span>
 
 
